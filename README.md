@@ -1,0 +1,2 @@
+# 17d69225-8f06-4562-9433-97d804c19ec8-hero-3
+Hero section variant 3 for 17d69225-8f06-4562-9433-97d804c19ec8
